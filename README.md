@@ -1,6 +1,6 @@
 # Lawyers as Entrepreneurs
 
-Nicole Bradick[(@NicoleBradick)](https://twitter.com/NicoleBradick), Joshua Kubicki[(@jkubicki)](https://twitter.com/jkubicki), Adam Ziegler[(@abziegler)](https://twitter.com/abziegler)
+Nicole Bradick [(@NicoleBradick)](https://twitter.com/NicoleBradick), Joshua Kubicki [(@jkubicki)](https://twitter.com/jkubicki), Adam Ziegler [(@abziegler)](https://twitter.com/abziegler)
 
 ## Links
 
