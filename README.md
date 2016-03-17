@@ -8,7 +8,7 @@ Nicole Bradick[(@NicoleBradick)](https://twitter.com/NicoleBradick), Joshua Kubi
 * [Goodwin Procter LLP - Year-End Toolkit](http://www.goodwinprocter.com/2015-Year-End-Toolkit)(
 * [Lavelle Law - Podcasts](http://lavellelaw.com/podcasts.html)
 * [DLA Piper - Webinars](https://www.dlapiper.com/en/us/focus/webinar-recordings-ipt/)
-* [Kramer Law Firm - YouTube Page](https://www.youtube.com/user/mykramerlawfirm/featured()
+* [Kramer Law Firm - YouTube Page](https://www.youtube.com/user/mykramerlawfirm/featured)
 * [Winston & Strawn - Slideshare Page](http://www.slideshare.net/WinstonStrawn/presentations)
 * [Gamez Law Firm - Newsletters](http://www.gamezlawfirm.com/newsletters/)
 * [Hogan Lovells - Blogs](http://www.hoganlovells.com/bloglanding/)
