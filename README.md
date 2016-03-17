@@ -4,13 +4,13 @@ Nicole Bradick [(@NicoleBradick)](https://twitter.com/NicoleBradick), Joshua Kub
 
 ## CrowdQueue
 
-http://crowdqueue.org/
-Access code: 1b4ef302
+* http://crowdqueue.org/
+* Access code: 1b4ef302
 
 ## Links
 
 ### Marketing
-* [Goodwin Procter LLP - Year-End Toolkit](http://www.goodwinprocter.com/2015-Year-End-Toolkit)(
+* [Goodwin Procter LLP - Year-End Toolkit](http://www.goodwinprocter.com/2015-Year-End-Toolkit)
 * [Lavelle Law - Podcasts](http://lavellelaw.com/podcasts.html)
 * [DLA Piper - Webinars](https://www.dlapiper.com/en/us/focus/webinar-recordings-ipt/)
 * [Kramer Law Firm - YouTube Page](https://www.youtube.com/user/mykramerlawfirm/featured)
